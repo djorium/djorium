@@ -9,6 +9,7 @@ I'm just a boy :3
 
 
 [⚡Fakecrime](https://fakecrime.bio/djorium/)
+[🔮 Discord](https://discord.gg/blazcloud)
 
 
 ## About me
